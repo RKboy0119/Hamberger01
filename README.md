@@ -1,1 +1,2 @@
-# Hamberger01
+# HAMBURGER !!
+養活一個可愛的漢堡歐 他會帶給你許多快樂
